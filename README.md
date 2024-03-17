@@ -1,1 +1,0 @@
-# Application-of-Appropriate-Colorimetry-in-Architectural-Spaces-A-Review-of-Color.
